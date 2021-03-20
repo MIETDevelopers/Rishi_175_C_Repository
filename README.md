@@ -1,1 +1,0 @@
-# Rishi_175_C_Repository
